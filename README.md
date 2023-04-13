@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I'm currently working as a coding Instructor @Ischool<br>🖍️I'm currently learning Python and automation using it
+🔭 I'm currently working as a coding Instructor @Ischool<br>📧 you can reach me from here: a.h.aboelkhair@gmail.com
 
 
 ## 🌐 Socials:
